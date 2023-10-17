@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @st4rrrrr
-- 👀 I’m interested in studying
-- 🌱 I’m currently learning pc
-- 💞️ I’m looking to collaborate on school jobs
+- 👀 I’m interested in ser pobre
+- 🌱 I’m currently como ser pobre
+- 💞️ I’m looking to collaborate on nada
 - 📫 How to reach me fds
 
 <!---
